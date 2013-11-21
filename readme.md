@@ -1,3 +1,3 @@
 ## college course work ##
 
-#### user at own risk :) ####
+#### use at own risk :) ####
